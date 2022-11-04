@@ -1,1 +1,1 @@
-# UI-Bug-Report-on-Lesis-HEendrix-Orthodontics
+# UI-Bug-Report-on-Lesis-Hendrix-Orthodontics
